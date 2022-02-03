@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on basically anything
 - 📫 How to reach me - Ambralin#7121
 
-actually bored to edit anything so yup that's it
+actually lazy to edit anything so yup that's it
 
 <!---
 Ambralin/Ambralin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
