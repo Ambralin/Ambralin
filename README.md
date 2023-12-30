@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ambralin
 - 👀 I’m interested in Video games and Programming
 - 💞️ I’m looking to collaborate on basically anything
-- 📫 How to reach me - Ambralin#7121
+- 📫 How to reach me - @ambralin on discord
 
 actually lazy to edit anything so yup that's it
 
